@@ -1,4 +1,5 @@
 Bens de Consumo - Adquirir um outro imovel
+Adquirir um imovel para morar com a futura esposa. (F)
 Desejo atual é realizar o planejamento para a concretização desses ideais.
 Gostaria de comprar um iate.
 Bem de Consumo Laila: Comprar um apartamento no exterior.
